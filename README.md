@@ -29,7 +29,7 @@
 
 点击访问：<a href="https://hl374.pages.dev/">黑料吃瓜网</a>
 
-点击访问：<a href="https://aw3-02.pages.dev/">暗网爆料社区</a>
+点击访问：<a href="https://hl384.pages.dev/">黑料网 今日黑料首页</a>
 
 点击访问：<a href="https://hl440.pages.dev/">每日分享最新黑料吃瓜资源</a>
 
